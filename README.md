@@ -36,7 +36,8 @@
  ![image](https://user-images.githubusercontent.com/113594316/198233336-dd9f5c19-481b-486a-928a-99c32a732f89.png)
 
  ## OUTPUT
- https://a360.co/431ORoE
+![EX 1 2_page-0001](https://github.com/user-attachments/assets/0bffcfe3-b879-4dad-b9f3-efb0bc74d55f)
+
  
  
  ## RESULT
